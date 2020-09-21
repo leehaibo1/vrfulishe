@@ -1,9 +1,7 @@
 # vrfulishe
-https://github.com/vrfulishe/vr
+最新地址（2016.10.17更新/本地址将定期更换）
 
 http://fulishe.vrbdg.com/
 
-唯一QQ：3112634982
---
-资源购买，文件解压密码询问联系QQ
---
+唯一QQ：123664010
+--微信：18902058089
